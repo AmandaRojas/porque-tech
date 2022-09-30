@@ -2,7 +2,7 @@
 
 ## Tema:
 Me conte porque escolheu a área de Tech?   
-Fale um pouco da sua historia na luta para se tornar Junior na Tech.  
+Fale um pouco da sua historia na luta para se tornar Junior na Tech e compartilhe conosco uma curiosidade.   
 Imortalize a sua historia aqui junto com **SouJunior**!  
 
 ## Regras:
